@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Vinicius Carvalho
+# 🧑‍💻 Vinicius Carvalho
 
 **`Estudante`**
 
